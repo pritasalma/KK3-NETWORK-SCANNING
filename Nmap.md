@@ -1,4 +1,4 @@
-# [1] Understanding Network Scanning Using Nmap
+# Understanding Network Scanning Using Nmap
 
 ![image](https://github.com/user-attachments/assets/6615f726-efe8-4081-aebc-2fedae724ae2)
 
