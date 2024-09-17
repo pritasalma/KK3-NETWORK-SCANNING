@@ -81,3 +81,29 @@
 
 
 # [3] Checking for Live Systems Using Angry IP Scanner
+
+
+![image](https://github.com/user-attachments/assets/e298c28c-8a5f-46e1-9391-a90fbb7cc0df)
+
+![image](https://github.com/user-attachments/assets/8055f6c6-d721-462c-8ded-204c640198de)
+
+![image](https://github.com/user-attachments/assets/0a9b0636-a021-41e0-9a91-b9cb928ccb5c)
+
+![image](https://github.com/user-attachments/assets/a79ece28-33f5-4a6f-811a-ed3791cdd755)
+
+![image](https://github.com/user-attachments/assets/965669c9-54df-44d5-8dfd-89a4222e073e)
+
+![image](https://github.com/user-attachments/assets/54a4a325-14c2-4020-beef-98aa418640e4)
+
+![image](https://github.com/user-attachments/assets/ff276840-038d-471a-9094-f33cf3271b10)
+
+![image](https://github.com/user-attachments/assets/32579621-e6bb-4ca5-a182-805fb0eebb62)
+
+![image](https://github.com/user-attachments/assets/aa252f5c-638a-48d1-bb23-0a2baf03a38c)
+
+![image](https://github.com/user-attachments/assets/3fbae14d-e02b-418b-a83c-16d9758fb097)
+
+![image](https://github.com/user-attachments/assets/27a7d52b-9b54-439c-b17f-0b554b0e28df)
+
+![image](https://github.com/user-attachments/assets/d6dcb613-28b5-43fc-b7ed-fd3685e9ac23)
+
